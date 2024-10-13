@@ -2,8 +2,8 @@
 - 👀 I’m interested in games
 - 🌱 I’m currently learning spanish
 - 💞️ I’m looking to collaborate on mafia game
-- 📫 How to reach me tirom web it contform
-- 😄 Pronouns: at work
+- 📫 How to reach me tirom web it contactforum
+- 😄 Pronouns: at work on Tirom Web IT
 - ⚡ Fun fact: humor
 
 <!---
